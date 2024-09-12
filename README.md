@@ -1,6 +1,6 @@
 # Truyentranhmoi.live
 
-**Truyentranhmoi.live** là một trang web cung cấp truyện tranh trực tuyến miễn phí với nhiều thể loại đa dạng và phong phú. Dưới đây là một số đánh giá chi tiết về trang web này.
+**https://truyentranhmoi.live** là một trang web cung cấp truyện tranh trực tuyến miễn phí với nhiều thể loại đa dạng và phong phú. Dưới đây là một số đánh giá chi tiết về trang web này.
 
 ## Ưu Điểm
 
